@@ -1,1 +1,3 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+I'd like to introduce myself...
+
+![Image of Bobbie Dazzler](https://secure.graysobjects.com/B2Bdata/GIL/2013/D/300px/RDAC13BALL%20MATCH%20XV%20SCOTLAND%20SZ5%20CREATIVE%20VIEW.png)
