@@ -1,0 +1,16 @@
+Here is a list of some of the things I like:
+- The few minutes on my own while my kids are in an activity at the same time
+- When my kids are simultaneously on good form
+- The time I have in the morning before my kids wake up
+- The time I have in the evening when my kids have gone to bed
+- Hanging out with friends
+- Eating good food
+- Drinking good drinks
+- Yoga
+- Team sports
+- Keeping fit
+- Swim squads
+- Mountain biking
+- Skiing
+- Learning foreign languages
+- Studying
